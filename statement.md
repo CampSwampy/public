@@ -30,7 +30,7 @@ In addition, we’re opening up our communication channels, where staff and user
 
 All in all, we’re very happy with our decision to help build and innovate the next generation of e-commerce, providing Web3 access and so much more to everyone... regardless of age, gender,  or technical savvy. 
 
-We'll be back very soon, and our new launch is just in the next few months! 
+We'll be back very soon, and our new launch is just in the next few months! We're currently moving to our new home; New York and will begin operating as Online Shop Inc., on an international scale, allowing anyone across the world to utilise our forthcoming solutions, products and services, not just the ones in Great Britain. However it is not to say we're shying away from our home, we're just enabling everyone to harness the power of our technology - for a more commercially connected and open world powered by Online Shop. 
 
 Thank you all for your continued support - and be patient, something amazing is coming and we want you to be part of this pivotal moment in our history. 
 
